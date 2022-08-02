@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello! :raised_hands:
 
 <!--
 **russellgochoa/russellgochoa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
