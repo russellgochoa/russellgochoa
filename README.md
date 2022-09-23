@@ -3,7 +3,7 @@
 ## Russell Ochoa
 ### Software Engineering | Writer | Sales | Sponsorship | Event Production
 
-I'm a software engineer, a writer, a natural connector and creative problem solver, who values clear and open communication as the path to a collaborative work environment.  I am well-versed in the sponsorship arena, and intimately familiar with the brand story from all sides.  In addition, my background in traditional journalism provides a strong foundation for my work in both new and old media.  When aligning these elements, I bring both empathy and stability as well as a drive to create the best possible experience and outcome for both team and client.
+I'm a software engineer, a writer, a natural connector and creative problem solver, who looks to clear and open communication as the path to a collaborative work environment.  I am well-versed in the sponsorship arena, and intimately familiar with the brand story from all sides.  In addition, my background in traditional journalism provides a strong foundation for my work in both new and old media.  When aligning these elements, I bring empathy and stability as well as a drive to create the best possible experience and outcome for team and client.
 
 
 
